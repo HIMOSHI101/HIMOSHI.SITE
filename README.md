@@ -1,2 +1,2 @@
 # HIMOSHI.SITE
-Website about Upa nd Coming Streamer Himoshi.
+Website about Up and Coming Streamer Himoshi.
